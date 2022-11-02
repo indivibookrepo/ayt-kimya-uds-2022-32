@@ -1,0 +1,1 @@
+# ayt-kimya-uds-2022-32
